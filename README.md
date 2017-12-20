@@ -1,1 +1,2 @@
-Forking any coin 
+Coin for mooning and pumping
+
